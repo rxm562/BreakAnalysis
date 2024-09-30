@@ -1,0 +1,7 @@
+Erasmus Mundus scholarship shaped my career by providing an opportunity to higher study in abroad. It was an stepping stone and helped me to build my career, particularly as a first-generation college student from lower-middle
+income family, it enabled me to pursue my dream career path. After completing my degree and serving as one of the earliest Country Representative of EMA BD, I played key roles in building EMA BD community and dissiminating Erasmus+ sholarship among young students in various universities in Bangladesh.
+Our Bangladesh team was the top-listed team to celebrate EMA Day first time in the history of EMA association. After my tennure, while serving multiple roles in South Asian Chapter, I still had the opportunity to collaborate
+with our alumni in Bangladesh to enriching our professional network, continue to dissiminate scholarship information among young professional and supporting them during their post-application visa processing with the help of Eurpean Delegation to Bangladesh.
+One of the achievement we made from 2013 to 2019 that we able to aware scholarship opportunities beyong public univeristies in Bangladesh, a fair amount of scholarship receipients are now from private universities in Banlgadesh, who 
+were underserved due to the lack of information available. Over the years, our BD alumni is not only enhance the activities within the country but also leading and serving the EMA core committees. We have involved beyond
+our academic activities, have been always supportive and enagege in various 
